@@ -1,6 +1,6 @@
 # miya188怎么关了
 
-<a href="https://8h9e.vip/">>>>>>>>>点/此/进/入/观/看/<<<<<<<<</a>
+<hr/> <a href="https://github.com/nemmp/jaok/issues/2">👉👉👉♥♥点此进入♥观看入口👈👉👉</a><hr/>
 
 
 太无语了……怎么会发生这种事？
